@@ -36,8 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The Trauailes of an English man. CONTAINING HIS SVNDRIE CAlamities
-indured by the space of twentie aSEMPER EADEM.
+SEMPER EADEM.
 1. TO THE MOST HIGH AND MIGHtie
 Princesse, Elizabeth by the grace of God
 Queene of England, France, and Ireland,
